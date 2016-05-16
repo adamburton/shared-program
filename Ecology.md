@@ -1,0 +1,6 @@
+# Some Possible Ecology Programmatic Ideas
+
+##### A new ecological program could establish a department of ecological balance to develop a list of necessary clean-up steps, energy innovations, and steps to reduce global warming and mitigate its impact, and, in general, policy to preserve the ecology.
+##### Beyond this, new ecology program could argue that clean-up funds should come from a reparations tax on current polluters and prior beneficiaries of unclean industrial operations.
+##### The critical innovation in a new program’s approach to ecological sanity, however, could be to open a national public debate about the relation between our basic economic and social institutions and the environment. For example, new program could begin the process of clarifying that we need institutions attuned to ecological costs and benefits and that we must experiment with non-market approaches to allocation, rather than trying to police the inevitable ecological ill-effects that markets routinely produce.
+##### And, of course, new ecology program that was sane, much less highly worthy, would have to formulate a truly massive campaign to turn the tide against global warming, water depletion, and other life threatening trends.
